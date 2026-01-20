@@ -1,1 +1,1 @@
-![site yazısı 2](https://github.com/user-attachments/assets/38e849cf-2212-4c41-b56e-9f7b4323da25)
+![internet sitesi](https://github.com/user-attachments/assets/6b084b05-a2a8-4e9c-9ebc-b27cd7e96e0a)
