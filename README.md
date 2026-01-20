@@ -1,2 +1,1 @@
-
-![Uploading Bu dergiyi hazırlarken birden fazla güzel duyguyu bir arada yaşadım. Bu dergi bir geleneğin ilk adımı. Bu dergiyi ben hazırlamış gibi duruyor olabilirim fakat sadece anılarımızı bir araya getirdim.jpg…]()
+![site yazısı](https://github.com/user-attachments/assets/9ed57045-181c-433e-b9f8-10af10b2aca3)
